@@ -2,6 +2,7 @@
 golf in space!
 
 **Contact/App Support**
+
 Email rende99@gmail.com for any questions, comments, or help with the app!
 
 **Privacy Policy**
